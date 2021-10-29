@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SUDHANSHU1217
-- 👀 I’m interested in listening music
+- 👀 I’m interested in learning new things
 - 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborate with other websites creator 
 - 📫 How to reach me :sudhanshuranjan1217@gmail.com 
